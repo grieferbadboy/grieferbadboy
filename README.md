@@ -19,3 +19,6 @@ $${\\color{#877463}\\text{TH4T'S ALL U G0T?.  }}$$
 
 
 <img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
+
+<img width="150" height="200" alt="Image" src="https://github.com/user-attachments/assets/3d25318a-ff20-411a-a3cb-cb8408a4ebe2"/>
+
