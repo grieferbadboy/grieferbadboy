@@ -1,16 +1,13 @@
-## Hi there 👋
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/83ca3e7e-f439-453b-b22a-7307127b9c11" />
 
-<!--
-**grieferbadboy/grieferbadboy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$${\\color{#A6938F}\\text{Brad Thaniyel . ♥}}$$
 
-Here are some ideas to get you started:
+<img width="2500" height="3000" alt="Image" src="https://github.com/user-attachments/assets/ff249305-88c1-4d76-ae84-ac87ee570125" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/83ca3e7e-f439-453b-b22a-7307127b9c11" />
+
+
+$${\\color{#877463}\\text{.... Dupi or Kairu .  }}$$ 
+ $${\\color{#5D0042}\\text{.... He. him .  }}$$
+
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
