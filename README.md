@@ -8,11 +8,14 @@ $${\\color{#A6938F}\\text{Brad Thaniyel . ♥}}$$
 
 
 $${\\color{#877463}\\text{.... Dupi or Kairu .  }}$$ 
- $${\\color{#5D0042}\\text{.... He. him .  }}$$
+ $${\\color{#5D0042}\\text{Transmasc ... He or him .  }}$$
 
 <img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
 
 <img width="1994" height="1421" alt="Image" src="https://github.com/user-attachments/assets/d5baeb6f-acaf-4b9a-a79a-4f5dde9570d4" />
 
 $${\\color{#5D0042}\\text{H3Y PUNK.  }}$$
+$${\\color{#877463}\\text{TH4T'S ALL U G0T?.  }}$$ 
 
+
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
