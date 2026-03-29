@@ -1,13 +1,17 @@
 <img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/83ca3e7e-f439-453b-b22a-7307127b9c11" />
 
-$${\\color{#A6938F}\\text{Brad Thaniyel . ♥}}$$
+
+<div align="center">
+ 
+${\\color{#A6938F}\\text{Brad Thaniyel . ♥}}$ ![Image](https://github.com/user-attachments/assets/d128303c-b496-44d7-957e-7c95bb89df9e)
 
 <img width="2500" height="3000" alt="Image" src="https://github.com/user-attachments/assets/ff249305-88c1-4d76-ae84-ac87ee570125" />
 
 <img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/83ca3e7e-f439-453b-b22a-7307127b9c11" />
 
 
-$${\\color{#9ba186}\\text{.... Dupi or Kairu .  }}$$ 
+${\\color{#9ba186}\\text{.... Dupi or Kairu .  }}$ ![Image](https://github.com/user-attachments/assets/d128303c-b496-44d7-957e-7c95bb89df9e)
+
  $${\\color{#877463}\\text{Transmasc ... He or him . INT }}$$
 
 <img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
