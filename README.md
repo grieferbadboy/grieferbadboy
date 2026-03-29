@@ -17,7 +17,7 @@ $${\\color{#9ba186}\\text{.... Dupi or Kairu .  }}$$
 $${\\color{#8E7C6D}\\text{H3Y PUNK. }}$$
 $${\\color{#877463}\\text{TH4T'S ALL U G0T?.  }}$$ 
 
-
+<div align="left">
 <img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
 
 ![Image](https://github.com/user-attachments/assets/b1776d16-c958-4cbf-9d0a-2455f573963c) 
