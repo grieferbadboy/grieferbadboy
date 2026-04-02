@@ -1,4 +1,4 @@
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/cae2cc67-48aa-48b0-aa6e-ebf2b52f4b62" />
+![Image](https://github.com/user-attachments/assets/97cd2aae-7346-4564-99cb-56e7aa7dd624)
 
 <p align="center"> i forgive you
 
