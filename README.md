@@ -27,7 +27,7 @@ $${\\color{#877463}\\text{TH4T'S ALL U G0T?.  }}$$
 ![Image](https://github.com/user-attachments/assets/b1776d16-c958-4cbf-9d0a-2455f573963c)<div align="right"><img width="110" height="62" alt="Image" src="https://github.com/user-attachments/assets/30f5b5df-6052-4aa1-9de6-1f6ef7e70245" />
 
 
-$${\\color{#A6938F}\\text{BASIC DNI !!}}$$
+$${\\color{#A6938F}\\text{dni proshippers, ex friends, weirdos, basic dni}}$$
 
 ![Image](https://github.com/user-attachments/assets/befa9c8a-0687-49a8-9fc4-a90f8211d7b8)
 
